@@ -15,3 +15,5 @@ La Ferrari https://www.mediafire.com/file/g4luhnpic3d46ml/Laferrari.zip/file
 lamborghini Aventador https://modsfire.com/d1JN5qW7f6Cs00J
 
 Nissan Skyline R34 https://modsfire.com/UW7K6MN8W4wk30F
+
+Mclearn F1 https://www.mediafire.com/file/1g749hvffsqz9gm/Mclaren_F1_frix.zip/file
