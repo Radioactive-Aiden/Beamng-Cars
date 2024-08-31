@@ -13,3 +13,5 @@ Audi R8 https://www.mediafire.com/file/qa9vmv59g9bz2zf/BBMAudiR8.zip/file
 La Ferrari https://www.mediafire.com/file/g4luhnpic3d46ml/Laferrari.zip/file
 
 lamborghini Aventador https://modsfire.com/d1JN5qW7f6Cs00J
+
+Nissan Skyline R34 https://modsfire.com/UW7K6MN8W4wk30F
