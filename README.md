@@ -2,7 +2,7 @@
 
 Mclearn P1 https://modsfire.com/J64f2kAuAue6z3R
 
-Pagani https://www.mediafire.com/file/ex4nvm5kgkj95xa/Pagani_Zonda_Frix.zip/file
+Pagani https://modsfire.com/o0eWE6T0oH9VnW7
 
 Jesko https://www.mediafire.com/file/17v7cra5bhutguf/RR_Jesko_v1.0.zip/file
 
@@ -12,9 +12,9 @@ La Ferrari https://www.mediafire.com/file/g4luhnpic3d46ml/Laferrari.zip/file
 
 lamborghini Aventador https://modsfire.com/d1JN5qW7f6Cs00J
 
-Lamborghini Hurrcans https://www.mediafire.com/file/9hh2crrljwipne4/infhuracan.zip/file
+Lamborghini Hurrcan https://modsfire.com/F215bafagRz09Dh
 
-Mclearn F1 https://www.mediafire.com/file/1g749hvffsqz9gm/Mclaren_F1_frix.zip/file
+Mclearn F1 https://modsfire.com/Evd8Fow91G1wAu5
 
 # Casual Cars
 
